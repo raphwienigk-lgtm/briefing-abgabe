@@ -1,4 +1,6 @@
-Stand: 24.09.2026
-Teil 3 von 2
+Stand: 25.09.2026
+Teil 3 von 3
 
-Dieser Teil ist heute nicht belegt.
+Zum Schluss zwei außenpolitische Stimmen aus der SÜDDEUTSCHEN ZEITUNG. Donald Trump hat Wladimir Putin zum Gipfel der zwanzig führenden Wirtschaftsmächte im Dezember nach Miami eingeladen, es wäre dessen erste Teilnahme seit dem Überfall auf die Ukraine. Im Pro und Contra der Zeitung heißt es: „Auch dieser Initiative des amerikanischen Präsidenten liegt womöglich ein schäbiges Motiv zugrunde. Er und sein Clan können es vermutlich kaum erwarten, in und mit Russland wieder Geschäfte zu machen, also pflegen sie den Mann, der für so viel Elend verantwortlich ist. Aber auch eine Initiative aus schäbigen Motiven kann ihr Gutes haben." Und mit Blick auf das Rote Meer schreibt dieselbe Zeitung: „Die Bomben hingen schon unter den Jets, als ein wankelmütiger Donald Trump die rote Kelle hob. Erst im allerletzten Moment soll der Präsident amerikanische Luftangriffe auf die Huthi abgesagt haben. Stattdessen ließ Trump seinen Verbündeten am Persischen Golf und am Roten Meer im Stich: Saudi-Arabien steht allein gegen die Huthi." Die Folgen, so die Zeitung, bekäme auch Europas Wirtschaft zu spüren.
+
+Das war die deutschsprachige Presseschau. Zu jeder Stimme kannst du nachfragen.
