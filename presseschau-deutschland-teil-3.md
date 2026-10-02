@@ -1,4 +1,6 @@
-Stand: 01.10.2026
-Teil 3 von 2
+Stand: 02.10.2026
+Teil 3 von 3
 
-Dieser Teil ist heute nicht belegt.
+Zum Schluss ein Thema, das aus Österreich kommt und nach Berlin schaut. DIE PRESSE veröffentlicht einen Gastkommentar des Religionspädagogen Ednan Aslan über den Wahlerfolg von Elif Eralp: "Nach dem Wahlerfolg von Elif Eralp und ihrer Partei in Berlin ist insbesondere in der Türkei eine bemerkenswerte Euphorie zu beobachten. In dieser Euphorie bleibt jedoch eine spannende Frage weitgehend unbeachtet: Wie reagierte wohl die Öffentlichkeit in der Türkei, in Ägypten oder in Pakistan, wenn ein jüdischer oder christlicher Politiker zum Bürgermeister von Istanbul, Kairo oder Islamabad gewählt würde?" Aslan kritisiert, dass etablierte Parteien in migrantischen Organisationen vor allem Wählerpotenzial sähen, ohne zwischen deren politischen Positionen zu unterscheiden. Die SÜDDEUTSCHE ZEITUNG blickt freundlicher, aber auch mit Zweifeln auf dieselbe Partei: "Die Partei setzt sich wie keine andere für Menschen mit Migrationshintergrund ein, besonders in Berlin. In einem sich ständig wieder vereinigenden Land wäre sie eigentlich geeignet, Gruppen zusammenzuführen. Eigentlich." Dieses letzte Wort trägt die ganze Skepsis.
+
+Das war die deutschsprachige Presseschau. Zu jeder Stimme kannst du nachfragen.
