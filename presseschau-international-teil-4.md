@@ -1,12 +1,4 @@
-Stand: 03.10.2026
-Teil 4 von 4
+Stand: 05.10.2026
+Teil 4 von 3
 
-Nun nach Südostasien und Afrika, wo es um die Grundlagen des Alltags geht. In Bangkok stand die Stadt zwei Wochen unter Wasser. Die BANGKOK POST rechnet mit den Behörden ab: „Die Stadtverwaltung erklärte alle fünfzig Bezirke zu Katastrophengebieten. Es gibt wenig Zweifel, dass die zuständigen Behörden die anhaltenden Regenfälle von Anfang an unterschätzt haben, obwohl die Wetterradardaten eine klare Warnung gaben. Einfach gesagt: Diese Behörden waren schlecht vorbereitet." Die Zeitung nennt die unbequeme Zahl: Die Stadt gibt vier Milliarden Baht im Jahr für Entwässerungssysteme aus und betreibt eine hochentwickelte Leitstelle, und doch hätten diese Mittel während der Flut kaum genutzt. Kritiker werfen der Verwaltung außerdem vor, Überschwemmungsflächen so umgewidmet zu haben, dass dort gebaut werden darf.
-
-Aus Nigeria berichtet die Zeitung PUNCH über einen Appell an Präsident Tinubu: Ein früherer Vorsitzender des christlichen Dachverbands fordert ihn auf, Hunger, Unsicherheit und Inflation dringend anzugehen; die Abschaffung der Benzinsubvention habe die Not verschärft, ohne dass ausreichend abgefedert worden sei. Die kenianische NATION schaut auf das größte Bauprojekt der Regierung: Eine Fernstraße über zweihundertdreiunddreißig Kilometer für zweihundert Milliarden Schilling soll bis zur Wahl im Jahr zweitausendsiebenundzwanzig fertig werden, und die Zeitung nennt solche Vorhaben zunehmend strategische politische Investitionen.
-
-Eine kleine Fußnote aus Ozeanien: In Australien beginnt in der Nacht zum Sonntag die Sommerzeit, und der SYDNEY MORNING HERALD nimmt das zum Anlass zu fragen, warum wir sie überhaupt haben. Wie willkürlich Zeitzonen sind, zeigt die Zeitung an China, das über fünftausend Kilometer hinweg nur eine einzige hat, weshalb die Sonne in Schanghai um sechs Uhr aufgeht, im westlichen Chengdu aber erst um halb acht.
-
-Zum Schluss ein Blick auf die amerikanische Football-Liga NFL, wo am Wochenende der vierte Spieltag ansteht. PRO FOOTBALL TALK rechnet vor, wie bitter es für fünf Mannschaften werden könnte: „Die Dolphins, Texans, Titans, Chargers und Buccaneers stehen alle bei null Siegen und drei Niederlagen. Nur sieben Mannschaften haben es nach einem Start mit drei Niederlagen in die Playoffs geschafft. Keine der fünf spielt an diesem Wochenende gegen eine andere, was bedeutet, dass am Montag noch alle fünf ohne Sieg dastehen könnten. Nur eine Mannschaft in der Geschichte der Liga hat sich nach einem Start mit vier Niederlagen für die Playoffs qualifiziert, die Chargers im Jahr neunzehnhundertzweiundneunzig." Dasselbe Portal nennt dieses Jahr das Jahr des Ersatz-Quarterbacks: Sechs Spielmacher, die am ersten Spieltag nicht in der Anfangsformation standen, haben seither sechs Spiele begonnen und alle sechs gewonnen. Und eine Statistik für Freunde schöner Serien: Trainer Sean McVay von den Rams hat gegen Nick Sirianni von den Eagles viermal gespielt und viermal verloren. Am Sonntag versucht er es wieder, in Philadelphia.
-
-Das war die internationale Presseschau. Zu jeder Stimme kannst du nachfragen.
+Dieser Teil ist heute nicht belegt.
