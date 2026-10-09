@@ -1,4 +1,8 @@
-Stand: 05.10.2026
-Teil 4 von 3
+Stand: 09.10.2026
+Teil 4 von 4
 
-Dieser Teil ist heute nicht belegt.
+Und zum Abschluss der politischen Themen ein Blick nach Afrika, auf Äthiopien, wo der Konflikt im Norden wieder aufflammt. Die staatliche russische Agentur TASS meldet äthiopische Drohnenangriffe auf eritreische Truppen in Tigray. Kommentiert wird das heute vor allem im britischen GUARDIAN, der mit einem Seitenhieb beginnt: „Wenn am Freitag der Friedensnobelpreisträger verkündet wird, wird das Komitee hoffen, dass seine Wahl besser altert als die von zweitausendneunzehn.“ Damals erhielt Äthiopiens Regierungschef Abiy Ahmed den Preis. Das Blatt warnt vor einem Flächenbrand, der Sudan, Somalia, Jemen und Iran verbindet, und schreibt: „Ein Waffenstillstand ist nicht unmöglich und muss Vorrang haben. Äthiopien braucht Hilfe, Wiederaufbau und eine politische Neuordnung.“ Eine Kommentarstimme aus Afrika selbst liegt heute nicht vor.
+
+Zum Schluss ein Blick auf die amerikanische Football-Liga NFL. Der Sender ESPN berichtet, dass Trainer Sean Payton bei den Denver Broncos die Spielzüge im Angriff wieder selbst ansagt, nachdem die Offensive nach vier Spielen in fast allen Statistiken im hinteren Drittel der Liga steht. Payton fasste das in einem knappen Satz zusammen: „Wir ändern etwas im Angriff; ich sage die Spielzüge an.“ Und die Seite PRO FOOTBALL TALK meldet, dass das Sonntagabendspiel zwischen Detroit und Carolina mit neunzehneinhalb Millionen Zuschauern unter der Marke von zwanzig Millionen blieb, und urteilt: „Die Zahl legt nahe, dass der Glanz um das Comeback der Detroit Lions verblasst ist.“
+
+Das war die internationale Presseschau. Zu jeder Stimme kannst du nachfragen.
