@@ -1,10 +1,4 @@
-Stand: 10.10.2026
-Teil 3 von 3
+Stand: 11.10.2026
+Teil 3 von 2
 
-Regenerative Skills eröffnet laut Shownotes eine neue Reihe über regeneratives Tiermanagement, achtundfünfzig Minuten. Zu Gast ist Maarten Sillekens, früher selbst Milchbauer, heute Berater für rund fünfundfünfzig Milchbetriebe in Europa, darunter Pilotbetriebe der Molkerei Arla. Er stellt kapitalintensive Stallbetriebe mit viel Dünger, Kraftfutter und Maschinen gegen Weidesysteme mit vielfältigen Kräuterwiesen und mobilem Melken. Sein Ansatz: zuerst fragen, wie der Hof und das eigene Leben aussehen sollen, dann in kleinen Experimenten vorgehen. Ein Hinweis zur Vorsicht: Der transkribierte Anfang klingt nach einer Gesprächsrunde über gemeinschaftliche Landwirtschaft und passt nicht ganz zu den Shownotes. Was genau in der Folge kommt, lässt sich deshalb nicht sicher sagen.
-
-Aus den älteren Folgen der Woche lohnen sich vor allem fünf. Bei Lanz und Precht geht es in Folge zweihundertsechsundsechzig um die Linke und den Vorwurf des Antisemitismus, also um die Frage, wo berechtigte Kritik an der israelischen Regierung endet. Ronzheimer hat am Donnerstag mit Kerstin Münstermann darüber gesprochen, ob die Wahl eines AfD-Landtagspräsidenten in Sachsen-Anhalt die Bundesregierung sprengt. Doppelgänger fragt in Folge sechshundertdrei, ob Sam Altman und Dario Amodei persönlich haften müssen. Mission Energiewende beschäftigt sich mit grünem Kolonialismus in Afrika, also mit den Rohstoffen für Windräder und Elektroautos, die oft aus dem Globalen Süden kommen. Und Radiowissen erzählt, wie wir vom Erdöl abhängig wurden, obwohl von Anfang an klar war, dass es endlich ist.
-
-Für den Arbeitsweg, eine Stunde hin und eine zurück, schlage ich vor: Auf dem Hinweg zuerst Ronzheimer über Frankreich, zweiundvierzig Minuten, und danach das Interview der Woche mit Maroš Šefčovič, fünfundzwanzig Minuten. Beides zusammen gut eine Stunde, und es vertieft genau die Themen, die heute auch in der Presseschau stehen. Auf dem Rückweg dann die drei Teile von „Im Bauch der Großstadt" am Stück, zusammen etwa einundsiebzig Minuten, in der Reihenfolge Riesenstädte, Schlafgänger, Rotes Wien. Das ist leichter als die Politik am Morgen und erzählt eine abgeschlossene Geschichte vom Problem bis zur Lösung.
-
-Zu jeder Folge kannst du nachfragen, ich habe die Transkripte hier.
+Dieser Teil ist heute nicht belegt.
