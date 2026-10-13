@@ -1,12 +1,4 @@
-Stand: 12.10.2026
-Teil 4 von 4
+Stand: 13.10.2026
+Teil 4 von 3
 
-Ganz anders der Blick aus der Medienbranche. In der thailändischen BANGKOK POST schreibt Agustino Fontevecchia, Digitalchef der argentinischen Zeitung Perfil, deren Verlag gerade OpenAI und Microsoft verklagt hat: „Die Firmen für künstliche Intelligenz stehlen nicht nur Inhalte, sie ermuntern ihre Nutzer auch, in ihren geschlossenen Welten zu bleiben, und verwandeln das Internet so in einen Markt weniger Mächtiger." Sein Fazit: „Eine dezimierte Nachrichtenbranche ist für alle ein schlechtes Ergebnis. Sie würde nicht nur zu einer schlechter informierten Öffentlichkeit führen, sie würde auch den parasitären Firmen selbst schaden, weil sie eine wichtige Quelle für Trainingsdaten abschneidet."
-
-Aus Afrika liegt zu diesem Thema nur ein Anriss vor: Die kenianische DAILY NATION aus Nairobi fragt, wie im Bildungswesen die Kraft des menschlichen Denkens bewahrt werden kann, während künstliche Intelligenz das Lernen rasant verändert.
-
-Zum Schluss ein Blick auf die amerikanische Football-Liga NFL. Mike Florio vom Portal PRO FOOTBALL TALK ist nach der Niederlage der Washington Commanders gegen die New York Giants außer sich. Die Mannschaft ließ in der Verlängerung die letzten Sekunden verstreichen, statt ein mögliches Siegtor zu schießen. Florio schreibt: „Es war objektiv furchtbar. Das hier ist die NFL, nicht die Jugendliga. Die Commanders hatten die Chance auf ein mögliches spielentscheidendes Field Goal, und sie sind erstarrt." Und dann ohne Umschweife: „Ich weiß, es klingt hart, aber Trainer Dan Quinn sollte morgen um diese Zeit nicht mehr angestellt sein." Auch Quarterback Jayden Daniels nimmt er nicht aus, denn echte Führungsspieler fänden einen Weg, wenn das Trainerteam versagt.
-
-Erfreulicher findet Florio die Rückkehr von Kyler Murray bei den Minnesota Vikings, die nach dem Sieg gegen die New Orleans Saints mit fünf Siegen aus fünf Spielen in die spielfreie Woche gehen. Murray brachte vierundzwanzig von dreißig Pässen an, und Florio schreibt: „Kyler Murray sieht wieder aus wie Kyler Murray." Und schließlich der Platzverweis für Dre Greenlaw von den San Francisco 49ers, der beim Sieg gegen die Seattle Seahawks am Spielfeldrand einem Spieler ohne Helm einen Kopfstoß versetzte: Die Anweisung dazu kam nicht von den Schiedsrichtern auf dem Platz, sondern direkt aus der Ligazentrale in New York. Ob Greenlaw zusätzlich gesperrt wird, entscheidet die Liga heute.
-
-Das war die internationale Presseschau. Zu jeder Stimme kannst du nachfragen.
+Dieser Teil ist heute nicht belegt.
