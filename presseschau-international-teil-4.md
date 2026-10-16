@@ -1,12 +1,4 @@
-Stand: 15.10.2026
-Teil 4 von 4
+Stand: 16.10.2026
+Teil 4 von 3
 
-In Chile freut sich die Zeitung LA TERCERA aus Santiago über einen historischen Besuch: Präsident José Antonio Kast reist als erster chilenischer Staatschef seit mehr als siebzig Jahren offiziell nach Bolivien. Der Autor Benjamín Salas schreibt: „Die Reife einer internationalen Beziehung besteht nicht darin, Unterschiede verschwinden zu lassen, sondern darin, zu verhindern, dass ein Unterschied alles andere unmöglich macht.“ Es sei wertvoll, dass dieser Prozess unter so unterschiedlichen Regierungen von Piñera über Boric bis Kast fortgeführt worden sei.
-
-Die brasilianische FOLHA DE SÃO PAULO verlangt in ihrem Leitartikel das Ende der umstrittenen Ermittlungen des Obersten Gerichts zu Falschnachrichten, die einst gegen die Putschgelüste Jair Bolsonaros eingeleitet worden waren: „Es entstand eine absurde Lage, in der das Gericht zugleich Opfer, Polizei und Richter sein konnte.“ Der Gerichtspräsident Edson Fachin habe den richtigen Weg erkannt, nun müsse er zeigen, dass er ihn auch gehen könne.
-
-Und aus Australien berichtet die australische Ausgabe des GUARDIAN über den Streit, ob Kohleexporteure auch die Emissionen ausweisen müssen, die beim Verbrennen ihrer Kohle im Ausland entstehen. Die konservative Opposition nennt ein entsprechendes Urteil des Obersten Gerichts Wahnsinn. Der Klimakorrespondent Graham Readfearn hält dagegen: „Die Emissionen mögen anderswo entstehen, aber sie verursachen weltweit Schäden, die Klimaforscher immer genauer beziffern können. Diese Schäden machen nicht an der Grenze von New South Wales halt.“
-
-Zum Schluss ein Blick auf die amerikanische Football-Liga NFL. Der Sender ESPN berichtet, dass die Sperre für Alaric Jackson von den Los Angeles Rams nach seinem Faustschlag gegen Bradley Chubb von den Buffalo Bills auf ein Spiel verkürzt wurde. Chubb selbst bestreitet, Jacksons Mutter beleidigt zu haben, er habe ihm nur gesagt, beim nächsten Mal werde ihn auch kein Mitspieler mehr schützen. Und er zieht seine eigene Lehre: „Ich habe gelernt, dass ich entweder die Hände oben habe oder einen Helm trage.“ Bei PRO FOOTBALL TALK wundert man sich über die rätselhafte Wadenverletzung von Jalen Hurts, dem Spielmacher der Philadelphia Eagles, die Hurts selbst eine sehr einzigartige Erfahrung nannte: „Was auch immer die Erklärung ist, hinter der Geschichte steckt eindeutig mehr, als das Team offengelegt hat.“
-
-Das war die internationale Presseschau. Zu jeder Stimme kannst du nachfragen.
+Dieser Teil ist heute nicht belegt.
