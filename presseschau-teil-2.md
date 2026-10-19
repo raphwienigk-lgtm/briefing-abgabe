@@ -1,4 +1,4 @@
-Stand: 18.10.2026
+Stand: 19.10.2026
 
 Diese Reihe wird nicht mehr befuellt. Die Presseschau ist seit dem
 21.09.2026 in presseschau-deutschland und presseschau-international
