@@ -1,20 +1,4 @@
-Stand: 19.10.2026
-Teil 3 von 3
+Stand: 25.10.2026
+Teil 3 von 1
 
-Wie verwundbar die digitale Welt schon ist, zeigt sich in Japan. Die JAPAN TIMES schreibt über eine Welle von Cyberangriffen auf Banken, Bahn und sogar Karaoke-Ketten: „Eine Serie von Cyberangriffen, die Japans Wirtschaft in den vergangenen Wochen erschüttert hat, ist nicht wegen neuartiger Hackermethoden mit künstlicher Intelligenz alarmierend, sondern wegen ihres schieren Ausmaßes." Während Erpressungsangriffe weltweit leicht zurückgingen, seien sie in Japan um siebenundsechzig Prozent gestiegen. Die MAINICHI SHIMBUN ergänzt, dass sogar das Netz der Regierung angegriffen wurde und rund zweihundertsechsundvierzigtausend Datensätze, etwa Namen und Mailadressen von Staatsbediensteten, abgeflossen sein könnten, und verlangt eine gründliche Überprüfung der Sicherheit.
-
-Zum sechsten Thema, Klima, Gesundheit und die Kunst der Warnung. Der britische GUARDIAN schaut nach Sibirien, wo ein Mitarbeiter eines Pestforschungsinstituts an einer rätselhaften Atemwegserkrankung starb und Moskau seitdem schweigt: „Ist in Russland die Pest ausgebrochen? Wäre die Antwort ein klares Ja, gäbe es nicht viel Grund zur Sorge. Mit schneller ärztlicher Hilfe ist die Pest behandelbar." Beunruhigend sei die Informationssperre. „Es ist nicht die Schuld der Weltgesundheitsorganisation, dass Russland im Grunde ein Schurkenstaat ist, aber sie muss auf solche Fälle vorbereitet sein."
-
-In einem zweiten Beitrag des GUARDIAN geht es darum, wie man über Krisen spricht. Der Autor warnt vor dem Untergangsdenken: „Das Problem mit der Untergangsstimmung ist nicht unbedingt, dass die Risiken übertrieben sind, sondern dass sie zur selbsterfüllenden Prophezeiung werden kann, weil sie Hilflosigkeit erzeugt, statt Menschen zu mobilisieren."
-
-Wie konkret das Thema ist, zeigt Chile, wo Hagel, Überschwemmungen und eine Schlammlawine die Hauptstadt getroffen haben. In LA TERCERA schreibt der Architekt Ricardo Abuauad: „Das Klima ändert sich, und die Stadt bleibt." Chile habe aus Erdbeben gelernt und seine Bauvorschriften verschärft. „Warum gelingt uns nicht dasselbe mit Bränden und Überschwemmungen? Jede Saison wiederholen wir die Diagnose, als wäre es das erste Mal."
-
-Die indische Zeitung THE HINDU aus Chennai plädiert dafür, dass Indien sich einer neuen internationalen Koalition für Kohlenstoffmärkte anschließt, die von der Europäischen Union, China und Brasilien gegründet wurde. Indien habe seinen eigenen Emissionshandel gerade gestartet, die Frage sei nun, „ob Indien es sich leisten kann, außerhalb des Raumes zu bleiben, in dem die Regeln geschrieben werden." Und in der STRAITS TIMES aus Singapur beschreibt eine frühere China-Korrespondentin, wie der Dunst von Waldbränden in Indonesien zurückgekehrt ist, und wie leicht man lernt, mit dem zu leben, was man nie hinnehmen sollte.
-
-Ein kurzer Nachtrag aus dem Nahen Osten und Südasien. Die türkische DAILY SABAH schreibt über die neuen Gefechte zwischen Pakistan und Afghanistan und nennt Zahlen: Die Terroranschläge in Pakistan seien von zweihundertvierundneunzig im Jahr 2021 auf über tausend im vergangenen Jahr gestiegen. Pakistan brauche verlässlichen Schutz, beide Länder aber einen Ausweg aus der Spirale von Angriff und Vergeltung. Und die TEHRAN TIMES greift den Angriff israelischer Siedler auf europäische Diplomaten und einen französischen Bürgermeister bei der Olivenernte im Westjordanland auf und sieht darin die Folge jahrzehntelanger westlicher Nachsicht mit Israel.
-
-Aus Afrika liegt heute keine Kommentarstimme zu diesen Themen vor; die nigerianischen und kenianischen Quellen lieferten nur Nachrichten und einen historischen Rückblick.
-
-Zum Schluss ein Blick auf die amerikanische Football-Liga NFL. Am Sonntagabend schlugen die Green Bay Packers die Dallas Cowboys mit dreiundzwanzig zu dreizehn. Der Sportsender ESPN schreibt: „Es könnte Zeit sein, über die Green Bay Packers als eine der heißeren Mannschaften der Liga zu sprechen." Es war ihr dritter Sieg in Folge, nach einem schwachen Start stehen sie nun bei vier Siegen und zwei Niederlagen, während Dallas auf zwei zu vier abrutscht. Die Packers hätten neun ihrer ersten zehn dritten Versuche verwandelt, gegen die schwächste Abwehr der Liga in dieser Lage. Und in seiner Kolumne mit überzogenen Reaktionen auf den sechsten Spieltag nimmt ESPN-Autor Dan Graziano die Indianapolis Colts aufs Korn, die als erstes Team in dieser Saison gegen die Tennessee Titans verloren. Quarterback Daniel Jones sei „schrecklich" gewesen, mit zwei Interceptions und nur zweiundzwanzig erfolgreichen von zweiundvierzig Pässen.
-
-Das war die internationale Presseschau. Zu jeder Stimme kannst du nachfragen.
+Dieser Teil ist heute nicht belegt.
