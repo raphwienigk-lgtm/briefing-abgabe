@@ -1,4 +1,4 @@
-Stand: 25.10.2026
+Stand: 28.10.2026
 Teil 1 von 1
 
-Die internationale Presseschau konnte heute nicht erstellt werden, weil der Abruf der Kommentare nicht fertig wurde: Der Rechner ist währenddessen immer wieder in den Ruhezustand gefallen.
+Die internationale Presseschau konnte heute nicht erstellt werden, weil das Internet beim Abruf der Kommentare so langsam und unzuverlässig war, dass nur ein einziger von rund dreihundert Beiträgen im vollen Wortlaut geladen werden konnte.
