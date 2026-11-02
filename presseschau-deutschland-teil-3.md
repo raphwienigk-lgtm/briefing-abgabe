@@ -1,6 +1,4 @@
-Stand: 01.11.2026
-Teil 3 von 3
+Stand: 02.11.2026
+Teil 3 von 2
 
-Das Gespräch geht diese These dann an drei Linien entlang, Klasse, Geschlecht und Herkunft. Bei der Klasse beschreibt Weis, wie Wegwerfmode und Straßenstil die sichtbare Ordnung aufgelöst hätten, alle trügen Kapuzenpullis und Turnschuhe. Das hält sie für verlogen, denn die Schere zwischen Arm und Reich sei groß wie lange nicht, nur zeige sich der Unterschied heute am Körper selbst, an Zähnen, Haut und Eingriffen, ähnlich wie einst die Hofgesellschaft ihre Körper durch Polster, Korsette und Schminke von den Massen abhob. Beim Geschlecht stellt sie fest, dass Frauen sich im zwanzigsten Jahrhundert die Herrenmode angeeignet haben, Männer umgekehrt aber kaum etwas von der Damenmode übernehmen, und sie warnt vor der wiederkehrenden Silhouette mit schmaler Taille und weitem Rock als Zeichen einer domestizierten Weiblichkeit. Bei der Herkunft kritisiert sie eine Modegeschichte, die nur Europa echte Mode zuspricht und den Rest der Welt auf Trachten reduziert. Am Ende läuft das Gespräch auf die Krise der Branche hinaus, auf Textilmüllberge und Ausbeutung in den Fabriken, und auf den Rat, weniger zu kaufen, mehr für das einzelne Stück auszugeben und es länger zu tragen. Die ganze Sendung dauert fünfunddreißig Minuten.
-
-Das war die deutschsprachige Presseschau. Zu jeder Stimme kannst du nachfragen.
+Dieser Teil ist heute nicht belegt.
