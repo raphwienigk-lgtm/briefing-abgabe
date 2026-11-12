@@ -1,4 +1,4 @@
-Stand: 11.11.2026
-Teil 3 von 2
+Stand: 12.11.2026
+Teil 3 von 3
 
-Dieser Teil ist heute nicht belegt.
+Das war die deutschsprachige Presseschau. Zu jeder Stimme kannst du nachfragen.

@@ -1,4 +1,14 @@
-Stand: 11.11.2026
-Teil 4 von 3
+Stand: 12.11.2026
+Teil 4 von 4
 
-Dieser Teil ist heute nicht belegt.
+Zum Schluss noch einige Stimmen, die eigene Themen setzen. In Spanien gab es am Mittwoch einen Generalstreik, den neunten seit Ende der Diktatur, und zwar gegen die Wohnungsnot. EL PAÍS kommentiert: „Der Generalstreik hat dazu gedient, ein allgemeines Unbehagen über die wirtschaftliche Ungleichheit in Spanien zu bündeln, deren dramatischstes Gesicht der Zugang zu Wohnraum ist." Und mit Blick auf die Wahl Ende des Monats: „Die Wähler werden diejenigen bestrafen, die sich die Mobilisierung gegenseitig vorwerfen, statt über ihre Gründe zu debattieren. Der Generalstreik ist nicht das Ende, sondern der Anfang von etwas."
+
+In Brasilien warnt die FOLHA DE SÃO PAULO den gerade wiedergewählten Präsidenten Lula vor der Staatsverschuldung. Während Lula nur mit Notbehelfen winke, zeige der verlässlichste Indikator der Haushaltslage, die Staatsverschuldung, „äußerst beunruhigende Zeichen". Sie liege bei fast dreiundachtzig Prozent der Wirtschaftsleistung, die Zinslast bei neun Prozent, „ohne Parallele unter den wichtigen Ländern der Welt". Die Verschiebung hin zu variabel verzinsten Anleihen spiegele „die geringere Bereitschaft der Gläubiger, Risiken einzugehen, wenn sie eine verschwenderische Regierung finanzieren."
+
+Die argentinische LA NACIÓN aus Buenos Aires bilanziert den Besuch von Papst Leo dem Vierzehnten. Der Gastautor Daniel Santa Cruz schreibt, der Papst habe ausgerechnet die sozialen Bewegungen aufgewertet, die Präsident Milei entmachten wollte, und den Begriff der sozialen Gerechtigkeit hochgehalten, den Milei einmal „eine Sache von Dieben" genannt hatte. Ein aggressiver Diskurs, so das Blatt, der im Wahlkampf funktioniert habe, dem aber mangels konkreter Ergebnisse nun das Wasser durch die Ritzen dringe.
+
+Und aus Afrika berichtet die kenianische NATION aus Nairobi über einen Auftritt von Altpräsident Uhuru Kenyatta, der die zersplitterte Opposition vor der Wahl im August 2027 zur Einigkeit aufruft. Kenyatta sagte demnach: „Die Menschen haben sich entschieden. Sie sind diesmal bereit, aber es gibt nur ein Problem: die Einheit der Opposition." Die Zeitung nennt das einen seiner deutlichsten Eingriffe in die Verhandlungen um einen gemeinsamen Kandidaten.
+
+Zum Schluss ein Blick auf die amerikanische Football-Liga NFL. Nach dem Ende der Wechselfrist haben die Minnesota Vikings den Spielmacher Kirk Cousins geholt, ohne einen ihrer anderen Quarterbacks zu entlassen. Mike Florio von PRO FOOTBALL TALK spottet über Carson Wentz nach dessen Auftritt am Montagabend: „Es ist ehrlich gesagt erstaunlich, dass Wentz noch nicht entlassen wurde. Der Auftritt am Montagabend zeigt, dass er nicht mehr in der NFL spielen sollte. Oder in irgendeiner Liga, deren Name auf FL endet." Sein Fazit: „Sie setzen alles auf Cousins. Je länger er spielt, desto größer ist die Chance der Vikings auf die Playoffs. Selbst ein nicht ganz vorbereiteter Cousins ist besser als die anderen Optionen, die sie haben."
+
+Das war die internationale Presseschau. Zu jeder Stimme kannst du nachfragen.
