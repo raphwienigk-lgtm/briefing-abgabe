@@ -1,4 +1,4 @@
-Stand: 20.11.2026
-Teil 4 von 3
+Stand: 22.11.2026
+Teil 4 von 2
 
 Dieser Teil ist heute nicht belegt.
