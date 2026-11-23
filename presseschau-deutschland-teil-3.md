@@ -1,4 +1,8 @@
-Stand: 22.11.2026
-Teil 3 von 2
+Stand: 23.11.2026
+Teil 3 von 3
 
-Dieser Teil ist heute nicht belegt.
+Ausgangspunkt ist die übliche Erzählung, nach der die Geschichte des Silicon Valley eine Geschichte einzelner genialer Gründer und Investoren sei. Hepp hält dagegen, dass hinter dem Mythos radikaler Innovation kleine Netzwerke stehen, die er Pioniergemeinschaften nennt. Deren Mitglieder kennen sich persönlich, leben teils sogar zusammen und verbinden Entwickler, Technikjournalisten, Investoren und Politik. Sie sehen sich als Wegbereiter, aber Hepp benutzt auch das Bild der Pionierpflanzen: Sie bereiten den Boden für späteres Wachstum, doch ihre Ideen setzen sich nie in ihrer ursprünglichen Radikalität durch. Er unterscheidet drei Generationen, von den kybernetischen Zukunftsträumen der Hippie-Kommunen der späten sechziger Jahre über die Bewegungen der zweitausendzehner Jahre, die alles agil machen wollten, bis zur heutigen Generation, die er mit dem englischen Ausdruck schlüpfrige Zukünfte beschreibt: Sie sieht, dass Technik die Zukunft gefährden kann, etwa durch künstliche Intelligenz, und glaubt trotzdem, dass richtig gemachte Technik die Probleme lösen wird. Solche Bewegungen wachsen nach Hepp nicht von unten, sie werden ausgerufen und dann kuratiert, mit Treffpunkten, Veranstaltungen und Presse. Ihre eigentliche Macht entfalte sich, wenn das leise Nachdenken über die Zukunft in kleinen Zirkeln zu einer lauten Erzählung von Konzernchefs und Medien wird, denn erst diese laute Erzählung bewege die Milliarden. Die Warnungen aus der Branche vor den Gefahren künstlicher Intelligenz hält Hepp für ehrlich gemeint, zugleich nützten sie als Teil dieser lauten Erzählung auch den Unternehmen. Europa, so sein Befund, schaue noch zu sehr mit dem Bild der neunziger Jahre auf das Silicon Valley.
+
+Die ganze Sendung dauert dreiunddreißig Minuten.
+
+Das war die deutschsprachige Presseschau. Zu jeder Stimme kannst du nachfragen.
